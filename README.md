@@ -1,1 +1,1 @@
-[![image](https://github.com/user-attachments/assets/1a49bbb4-40c7-43fb-9f1e-31257ba695d4)](https://sean.rest/)
+[![image](https://github.com/user-attachments/assets/21db6027-278e-4d9b-9505-9394f3bdf660)](https://sean.rest/)
